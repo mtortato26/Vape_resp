@@ -1,1 +1,1 @@
-<h1 align="center">Delux DX ONE</h1>
+<h1 align="center">Vass Co.</h1>
